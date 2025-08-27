@@ -13,7 +13,7 @@
       🎯 Programador em desenvolvimento <br>
       🔧 Boa experiência em hardware e afins<br>
       🎥 Adoro editar vídeos (Vegas, Premiere) <br>
-      🌱 Estudando programação linguas estrangeiras e hardware <br>
+      🌱 Estudando programação e hardware <br>
       🎮 Apaixonado por games, animes, rock e tecnologia
 
 
